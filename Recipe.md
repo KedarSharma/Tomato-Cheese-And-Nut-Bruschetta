@@ -1,5 +1,4 @@
 RECIPE
-______
 ------
 Combine all the ingredients except lettuce and French bread. 
 Toss well to mix properly. 
